@@ -5,7 +5,6 @@
   pumpkin 15-16 he/him 👻 i like to play and draw
   <br>
   i like limbus + crk and roblox ya pls play and talk with me im looking for friends❗️😋
-  <br> i dont fw srs kinnies or ppl who encourage delusions👎
   <br>
   discord: 2cwl <a href="https://bugguy.straw.page">strawpage</a>
 </center>

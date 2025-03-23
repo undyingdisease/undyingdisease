@@ -2,9 +2,10 @@
 
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b7a3018c-87b2-4e6e-8e10-2d2cb37d5a2f/djf3jp2-195467de-b07e-4e16-88d2-e855ba7875cd.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2I3YTMwMThjLTg3YjItNGU2ZS04ZTEwLTJkMmNiMzdkNWEyZlwvZGpmM2pwMi0xOTU0NjdkZS1iMDdlLTRlMTYtODhkMi1lODU1YmE3ODc1Y2QuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Nc6TK0Fj54bxW7KHg-ZfqMOWuYS4QQmgDx__C5ZOP-k">
   <br>
-  anjssgsgjs
+  pumpkin 15-16 he/him taken👻
   <br>
-  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b7a3018c-87b2-4e6e-8e10-2d2cb37d5a2f/djf3joo-807c25f7-cd67-4cd2-a468-94cf9986011e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2I3YTMwMThjLTg3YjItNGU2ZS04ZTEwLTJkMmNiMzdkNWEyZlwvZGpmM2pvby04MDdjMjVmNy1jZDY3LTRjZDItYTQ2OC05NGNmOTk4NjAxMWUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.nAuhbkCUs83U0oWYxChSZDZ6vMtBEKNFkT3K8zwR5Ls">
+  i like limbus + crk and roblox ya pls play and talk with me im looking for friends❗️😋
+  <br> i dont srs kinnies or ppl who encourage delusions👎
 </center>
 
 <!--

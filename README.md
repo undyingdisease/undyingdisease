@@ -5,6 +5,8 @@
   pumpkin 15-16 he/him i love my bffie👻
   <br>
   i like limbus + crk and roblox ya pls play and talk with me im looking for friends❗️😋
+  <br><br>
+  Dni profic proship (seek help) and fictkin encouragers ew
 </center>
 
 <!--

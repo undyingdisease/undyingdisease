@@ -1,5 +1,7 @@
 <center>
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b7a3018c-87b2-4e6e-8e10-2d2cb37d5a2f/dji75g1-90c9c4a9-a7c1-478f-a3ff-1865fc8cb839.png/v1/fit/w_598,h_382,q_70,strp/untitled776_20250404203743_by_dawkling_dji75g1-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MzgyIiwicGF0aCI6IlwvZlwvYjdhMzAxOGMtODdiMi00ZTZlLThlMTAtMmQyY2IzN2Q1YTJmXC9kamk3NWcxLTkwYzljNGE5LWE3YzEtNDc4Zi1hM2ZmLTE4NjVmYzhjYjgzOS5wbmciLCJ3aWR0aCI6Ijw9NTk4In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.HXAQ2u90GhtMWM8bJqrUhJooBw63JRTWMNgwFSESQ_U" width=400>
   <br>
-  Fictkin encouragers dni
+  fictkin encouragers dni
+  <br>
+  and dni if u like limbus/pjm from forsaken 💔 i like forsaken but some ppl are rlly annoying
 </center>

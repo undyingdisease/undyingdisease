@@ -1,5 +1,7 @@
 <center>
   <img src="https://media1.tenor.com/m/7IeEldoyArUAAAAC/null-regretevator.gif" width=300>
   <br>
-i like pjm 
+pleeease talk to me abt pjm
+  <br>
+  forsaken fandom dni lowkey
 </center>

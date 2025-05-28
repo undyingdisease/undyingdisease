@@ -3,6 +3,6 @@
   <br>
 pleeease talk to me abt pjm
   <br>
-  forsaken fandom dni lowkey
-  <br><br> i block most fictkinnies lol dni if u support delusions <br> if u treat fictkins as headmates ur weird
+  forsaken fandom dni lowkey (i block 90% of forsaken fans who like limbus it pmo)
+  <br><br> fictkin/irl/delusion encouragers dni + if u treat kins as headmates ur weird
 </center>

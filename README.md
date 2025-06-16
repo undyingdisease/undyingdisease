@@ -1,10 +1,8 @@
 <center>
   <img src="https://media1.tenor.com/m/7IeEldoyArUAAAAC/null-regretevator.gif" width=300>
   <br>
-pleeease talk to me abt pjm
+you should talk to me abt my interests NOW
   <br>
-  forsaken fandom dni lowkey (i block 90% of forsaken fans who like limbus it pmo)
-  <br>
-  dandys world fandom IWC 
-  <br><br> fictkin/irl/kinshift/delusion encouragers dni + if u treat kins as headmates ur weird
+  forsaken fandom dni + dandys world fandom IWC 
+  <br><br> identity delusion (fictkin/irl/kinshift) encouragers dni + if u treat kins as headmates ur weird
 </center>

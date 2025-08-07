@@ -1,8 +1,5 @@
 <center>
-  <img src="https://media1.tenor.com/m/7IeEldoyArUAAAAC/null-regretevator.gif" width=300>
+  <img src="https://media1.tenor.com/m/XylBRn7GrOQAAAAC/guilty-gear-happy-chaos.gif" width=300>
+romeo / boss he him 16 you should talk to me about my interests NOW
   <br>
-you should talk to me abt my interests NOW
-  <br>
-  forsaken fandom dni + dandys world fandom IWC 
-  <br><br> identity delusion (fictkin/irl/kinshift) encouragers dni + if u treat kins as headmates ur weird
 </center>

@@ -3,5 +3,7 @@
 romeo / crow he him 16 i play and <a href="https://toyhou.se/happy-chaos">draw</a> <br> you should talk to me about my <a href="https://txto.eu.org/yeonsim">interests</a> NOW
 <br>
 i like guilty gear (i love chaos, bedman, anji and mostly everyone)
+<br>
+dni if you support/defend profic/proship  go take a bath
 
 </center>

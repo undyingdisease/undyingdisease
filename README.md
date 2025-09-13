@@ -6,3 +6,5 @@ i like blue
 follow me on <a href="https://toyhou.se/happy-chaos">toyhouse</a> ok? i want art trades
 <br>
 dni proficship / "fiction doesn't affect reality" eeeyyuuuck!
+<br>
+dont spam follow me its kinda annoying

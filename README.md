@@ -3,10 +3,8 @@
 <br>
 i like the blue one
 <br>
-johnny and anji yume cause i'm evil
-<br>
 oomf up on <a href="https://toyhou.se/happy-chaos">toyhouse</a>
 <br>
 dont spam follow me its kinda annoying
 <br>
-hitler reincarnates dni
+hitler reincarnates dni thanks

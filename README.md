@@ -8,3 +8,5 @@ oomf up on <a href="https://toyhou.se/happy-chaos">toyhouse</a>
 dont spam follow me its kinda annoying
 <br>
 hitler reincarnates dni thanks
+<br>
+pjm/forsaken fans dni you honestly make me want to bash my head into a wall thanks

@@ -5,8 +5,6 @@ i like the blue one
 <br>
 oomf up on <a href="https://toyhou.se/happy-chaos">toyhouse</a>
 <br>
-dont spam follow me its kinda annoying
+dont spam follow pls
 <br>
-hitler reincarnates dni thanks
-<br>
-pjm/forsaken fans dni you honestly make me want to bash my head into a wall thanks
+hitler reincarnates and forsaken fans (same thing) dni ok..? thanks

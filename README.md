@@ -7,4 +7,4 @@ oomf up on <a href="https://toyhou.se/happy-chaos">toyhouse</a>
 <br>
 dont spam follow pls
 <br>
-hitler reincarnates and pjm + forsaken fans dni ok..? thanks
+hitler reincarnates + if you like pjm AND forsaken dni ok..? thanks

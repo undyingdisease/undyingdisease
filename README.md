@@ -3,8 +3,4 @@
 <br>
 i like the blue one
 <br>
-oomf up on <a href="https://toyhou.se/happy-chaos">toyhouse</a>
-<br>
-dont spam follow pls
-<br>
-hitler reincarnates + if you like pjm AND forsaken dni ok..? thanks
+pjm fans = block on sight

@@ -4,3 +4,5 @@
 i like the blue one
 <br>
 dni if you like forsaken
+<br>
+<b>almost always dniuf if on busy mode</b>

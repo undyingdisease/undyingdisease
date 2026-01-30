@@ -3,6 +3,6 @@
 <br>
 i like project moon and guilty gear if you want to talk to me about that
 <br><br>
-dni if you like forsaken, dark/proship, fictkin, If ur annoying i just block u
+dni if you like forsaken, dark/proship, fictkin (singlets who treat kins as headmates), If ur annoying i just block u
 <br><br>
 <img src="https://media1.tenor.com/m/_3xftK1ZvPkAAAAd/gubo-jia-huan.gif" width="250">

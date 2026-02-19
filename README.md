@@ -1,4 +1,7 @@
-Talk to me about pjm games if u want i like to talk smiles
+Talk to me about pjm games if u want. unless you're not caught up on limbus... but i like to talk. smiles
 <br><br>
-big gubo x jia huan lover #huanboforever
-<br> if u don't like them why are u here Ok
+big gubo x jia huan lover #huanboforever i like them 🌺🍒
+<br><br>
+**You are not entitled to know why i blocked you I just don't rlly care .**
+<br><br>
+DNI pro/darkship, use prn.cc for "fictkin/fictive" lists and **aren't a system**. "fictkin/me irl" mfs just dni in general

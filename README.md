@@ -11,4 +11,4 @@ big gubo x jia huan lover #huanboforever i like them 🌺🍒
 <br><br>
 <b>You are not entitled to know why i blocked you I just don't rlly care .</b>
 <br><br>
-DNI pro/darkship, use prn.cc for "fictkin/fictive" lists and <b>aren't a system</b>. "fictkin/me irl" mfs just dni in general
+DNI pro/darkship, forsaken fans, use prn.cc for "fictkin/fictive" lists and <b>aren't a system</b>. "fictkin/me irl" mfs just dni in general

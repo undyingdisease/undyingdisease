@@ -1,15 +1,16 @@
 
-
-
-<img src="https://github.com/user-attachments/assets/ade99bf7-7fcf-421d-8dd3-9d040cfd871c" width="250" height="auto">
-<img src="https://github.com/user-attachments/assets/ab8941db-d064-46ea-a114-cd98fa4b0eab" width="250" height="auto">
-
+<img src="https://media.tenor.com/aauAESZ3cTIAAAAi/pokemon.gif" width="200" height="auto">
 <br>
-Talk to me about pjm games if u want. unless you're not caught up on limbus... but i like to talk. smiles <br> i also play adopt me. Lets be oomfs
+Harmony/crowley he him 17 <br>
+I like project moon. Talk to me about limbus/lobcorp/ruina if you want 🖤 <br>
+I also play adopt me.. (whisp if you wanna add me) & i like guilty gear + pokemon trainers.
 <br><br>
-big gubo x jia huan lover #huanboforever i like them 🌺🍒 <br>
-<b>dni if you make "gubo & jia huan fraud" jokes</b>, i will block you, it's very overused and unfunny.
+Gubo is my favorite❤️🍒 i love yisang & meursault, & sinclair / wei / jia huan / lei heng
+<br>
+<b>"gubo fraud/bum"</b> = blocked K?
+<br>
+additionally <b>You are not entitled to know why i blocked you I just don't rlly care .</b>
 <br><br>
-<b>You are not entitled to know why i blocked you I just don't rlly care .</b>
+DNI profic/darkship, forsaken fans, "fictkin/character irl"
 <br><br>
-DNI pro/darkship, forsaken fans, use prn.cc for "fictkin/fictive" lists and <b>aren't a system</b>. "fictkin/me irl" mfs just dni in general
+<img src="https://media1.tenor.com/m/VaCz-uUJVjoAAAAC/gubo-jia-huan.gif" width="250" height="auto">

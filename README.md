@@ -1,14 +1,13 @@
-
+spam follow = block <br>
 <img src="https://media.tenor.com/aauAESZ3cTIAAAAi/pokemon.gif" width="200" height="auto">
 <br>
-Harmony/crowley he him 17 <br>
-I like project moon. Talk to me about limbus/lobcorp/ruina if you want 🖤 <br>
-i like guilty gear + pokemon trainers & adopt me
-<br><br>
-Gubo is my favorite❤️🍒 i love yisang & meursault, & others
-<br> <b>"gubo fraud/bum"</b> = blocked K?
+harmony/crowley he him 17 <br>
+hyprfix on guilty gear and project moon. i like adopt me & pokemon trainers <br>
 <br>
-additionally <b>You are not entitled to know why i blocked you Idrc .</b>
+gubo is my favorite❤️🍒 i love lcb15 & lcb 511, & others
+<br> <b>"gubo fraud/bum"</b> = blocked
+<br>
+additionally <b>you are not entitled to know why i blocked you and idrc .</b>
 <br><br>
 DNI profic/darkship, forsaken fans, "fictkin/character irl"
 <br><br>

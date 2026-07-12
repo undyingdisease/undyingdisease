@@ -3,6 +3,7 @@ spam follow = block <br>
 <br>
 Crow, it/any 17, feel free to w2i <br>
 I like Project Moon, Guilty Gear, Chainsaw Man & Deltarune
+<br> attack me i revenge https://artfight.net/~Gubo
 <br>
 i love gubo (slander him and i block ok)
 <br><br>

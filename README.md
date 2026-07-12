@@ -1,8 +1,8 @@
 spam follow = block <br>
 <img src="https://media.tenor.com/aauAESZ3cTIAAAAi/pokemon.gif" width="100" height="auto">
 <br>
-crow it/any 17<br>
-hyprfix on guilty gear and project moon <br>
+Crow, it/any 17, feel free to w2i <br>
+I like Project Moon, Guilty Gear, Chainsaw Man & Deltarune
 <br>
 i love gubo (slander him and i block ok)
 <br><br>

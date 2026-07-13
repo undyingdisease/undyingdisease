@@ -12,6 +12,8 @@ gubo's biggest shooter (slander him = blocked ok)
 DNI profic/darkship, forsaken fans, "fictkin/da/irl"
 <br>
 i block a lot of people for my own sanity
+<br>
+don't spam follow pls
 <br><br>
 hi ninja hi lop, feel free to w2i if you want to bmf : )
 <br><br>

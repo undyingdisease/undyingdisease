@@ -4,8 +4,8 @@
 <br>
 crow — he/nameself 17 queer <br>
 ✧ project moon, guilty gear, chainsaw man, deltarune<br>
-ask me about my lobcorp nuggets (draw <a href="https://artfight.net/character/8444124.healyo">healyo</a>)<br>
-<br> <b>i revenge https://artfight.net/~Gubo</b>
+ask me about my lobcorp nuggets (draw <a href="https://artfight.net/character/8444124.healyo">healyo</a> pls)<br>
+<br> <b>attack me i revenge https://artfight.net/~Gubo</b>
 <br><br>
 gubo's biggest shooter (slander him = blocked ok)
 <br><br>

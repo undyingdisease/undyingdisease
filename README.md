@@ -9,7 +9,7 @@ ask me about my lobcorp nuggets (draw <a href="https://artfight.net/character/84
 <br><br>
 gubo's biggest shooter (slander him = blocked ok)
 <br><br>
-DNI profic/darkship, forsaken fans, "fictkin/da/irl"
+DNI profic/darkship, forsaken fans, "fictkin/da/irl", hongsang & ishdon fans
 <br>
 i block a lot of people for my own sanity + don't spam follow pls
 <br><br>

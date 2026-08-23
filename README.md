@@ -5,12 +5,8 @@
 crow, he/none 17 feel free to w2i<br>
 ✧ chainsaw man, guilty gear, lobcorp, deltarune<br>
 gubo's biggest shooter
-<br>
-https://toyhou.se/gubo
 <br><br>
 <b>limit interactions if </b> : proficship | ship ishdon/hongsang | "fictkin/irl"
-<br>
-i block a lot of people for my own sanity. spam follow = block
 <br><br>
  if you walk up to me i expect you to say something first
 <br><br>
